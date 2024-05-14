@@ -26,6 +26,7 @@ url: "https://badchardev.github.io"
 
 # Build settings
 theme: minima
+  skin: dark
 plugins:
   - jekyll-feed
 
