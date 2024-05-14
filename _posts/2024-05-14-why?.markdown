@@ -1,0 +1,17 @@
+---
+layout: post
+title:  "Why?"
+date:   2024-05-14 03:33:22 -4444
+categories: jekyll update
+---
+
+## Why does this site exist?
+
+This is a place where I can give my unfiltered 
+
+- emotions
+- opinions
+- thoughts 
+- etc. 
+
+Brought to you by: My access to the world wide web! 
