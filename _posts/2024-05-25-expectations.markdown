@@ -15,7 +15,7 @@ I may make a dedicated music post at some point but for now this will suffice.
 
 Expectation is a funny thing. It's a weight many of us are asked to bear from an early age, and it's something we all at times feel we fall short of.
 
-Our parent's paremts had expectations for them. I'm sure they didn't fit the mold perfectly, yet why does this weight still not let up in crushing my chest?
+Our parent's parents had expectations for them. I'm sure they didn't fit the mold perfectly, yet why does this weight still not let up in crushing my chest?
 
 Perhaps it's the state of things? Of course the world is too expensive to afford for the vast majority of us. I never imagined my life being unable to afford 
 
