@@ -5,7 +5,7 @@ date:   2024-05-25 07:27:22 -4444
 categories: jekyll update
 ---
 
-## Expectatiions
+## Expectations
 
 As a side note before I start the post, I'm going to give the album I'm listening to at the time of each post so everyone can find some new tunes.
 I may make a dedicated music post at some point but for now this will suffice. 
