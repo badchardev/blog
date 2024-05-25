@@ -25,9 +25,7 @@ try harder, and get ahead through sheer determinism. Yet these are the same peop
 
 too would be the ones pointing the finger, as if we aren't anxiously trying to plug in their formula(s) of past to no avail. 
 
-
 What drives the nail in this proverbial coffin? **Influencer Culture**
-
 
 The hilariousness of some very affluent "podcast bros" telling myself, and all of you. That we simply aren't grinding hard enough. That we need to wake up at 4am.
 
@@ -38,7 +36,6 @@ Logic is simply falling by the wayside. Not in the Ben Shapiro owns feminists wi
 What ever happened to you cannot trust everything you read online? We once understood this simple truth, and now it seems as a sheer memory.
 
 Have we suddenly gained 100% fact checking algorithms? I thought not...
-
 
 This isn't particularly a post touching on the unaffordability of a post modern era, this is evident. It's more to highlight the philosophy of it all. 
 
